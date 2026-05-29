@@ -1,9 +1,6 @@
-# AlileXa
+# AlileXa (Ali Solgi)
 
 **Iranian-American Rapper, Music Producer, and Songwriter**
-Full Name: Ali Solgi
-Height: 174 cm
-Birthplace: Tehran, Iran
 
 AlileXa (born in 19 August 2012) He is an artist who creates American rap with deep, conscious lyrics. He handle every step of my music production — from writing and recording to mixing and video editing.
 
