@@ -8,7 +8,7 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 - **Official Website:** [alilexa.com.free](https://alilexa.com.free)
 - **Genius (Verified Artist):** [genius.com/artists/Alilexa](https://genius.com/artists/Alilexa)
 - **YouTube:** [youtube.com/@AlileXa_Musics](https://www.youtube.com/@AlileXa_Musics)
-- **SoundCloud:** [soundcloud.com/AlileXa](https://on.soundcloud.com/1FhtUpbJ1pht0NTnlT)
+- **SoundCloud:** [soundcloud.com/AlileXa](https://soundcloud.com/the_alilexa)
 - **TikTok:** [tiktok.com/@the.alilexa](https://www.tiktok.com/@the.alilexa)
 - **Telegram:** [t.me/The_AlileXa](https://t.me/The_AlileXa)
 
@@ -21,7 +21,7 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 - `Street Test` - sixth single (2026)
 - `Finally Clear` - seventh single (2026)
 - `Can't let go` - Eighth single (2026)
-- `Not Fine Live Performance` ninth (single)
+- `Not Fine Live Performance` ninth single (2026)
 
 📀 **Genius Records:**
 - Fastest new user to reach 1,000 IQ points (less than 10 hours)
