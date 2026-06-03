@@ -11,6 +11,7 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 - **SoundCloud:** [soundcloud.com/AlileXa](https://soundcloud.com/the_alilexa)
 - **TikTok:** [tiktok.com/@the.alilexa](https://www.tiktok.com/@the.alilexa)
 - **Telegram:** [t.me/The_AlileXa](https://t.me/The_AlileXa)
+- **YouTube Music:** [music.youtube.com/@alilexa_musics](https://music.youtube.com/@alilexa_musics)
 
 🎵 **AlileXa's Releases:**
 - `Feel` - First single (2026)
