@@ -23,7 +23,6 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 - `Street Test` - sixth single (2026)
 - `Finally Clear` - seventh single (2026)
 - `Can't let go` - Eighth single (2026)
-- `Not Fine Live Performance` ninth single (2026)
 
 📀 **Genius Records:**
 - Fastest new user to reach 1,000 IQ points (less than 10 hours)
