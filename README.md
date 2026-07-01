@@ -6,7 +6,7 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 
 🔗 **AlileXa's Official Links:**
 - **Official Website:** [alilexa.com.free](https://alilexa.com.free)
-- - **Discogs:** [discogs.com/artist/17805789-AlileXa](https://www.discogs.com/artist/17805789-AlileXa)
+-   **Discogs:** [discogs.com/artist/17805789-AlileXa](https://www.discogs.com/artist/17805789-AlileXa)
 - **SoundCloud:** [soundcloud.com/AlileXa](https://soundcloud.com/the_alilexa)
 - **Instagram:** [Instagram.com/the_alilexa](https://www.instagram.com/the_alilexa)
 - **Genius (Verified Artist):** [genius.com/artists/Alilexa](https://genius.com/artists/Alilexa)
