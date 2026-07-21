@@ -17,18 +17,11 @@ AlileXa (born in 19 August 2012) He is an artist who creates American rap with d
 - **YouTube Music:** [music.youtube.com/@alilexa_musics](https://music.youtube.com/@alilexa_musics)
 
 🎵 **AlileXa's Releases:**
-- `Feel` - First single (2026)
-- `Not Fine` - Second single (2026)
-- `Pain` - Third single (2026)
-- `Float Away` - Fourth single (2026)
-- `Still Breathing` - Fifth single (2026)
-- `Street Test` - sixth single (2026)
-- `Finally Clear` - seventh single (2026)
-- `Can't let go` - Eighth single (2026)
-- `Ghalbe Zire Avar` - ninth single (2026)
-- `Cold` - tenth single (2026)
-- `No Slow Down` - eleventh single (2026)
-- `Step by Step` - twelfth single (2026)
+- `Ghalbe Zire Avar` - First single (2026)
+- `Cold` - Second single (2026)
+- `No Slow Down` - Third single (2026)
+- `Step by Step` - Fourth single (2026)
+- `Footprint` - Fifth single (2026)
 
 📀 **Genius Records:**
 - Fastest new user to reach 1,000 IQ points (less than 10 hours)
