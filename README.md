@@ -5,7 +5,7 @@
 AlileXa (born in 19 August 2012) He is an artist who creates American rap with deep, conscious lyrics. He handle every step of my music production — from writing and recording to mixing and video editing.
 
 🔗 **AlileXa's Official Links:**
-- **Official Website:** [alilexa.com.free](https://alilexa.com.free)
+- **Official Website:** [sites.google.com/view/alilexa](https://sites.google.com/view/alilexa)
 - **BandLab:** [bandlab.com/alilexa](https://www.bandlab.com/alilexa)
 - **SoundCloud:** [soundcloud.com/AlileXa](https://soundcloud.com/the_alilexa)
 - **Instagram:** [Instagram.com/the_alilexa](https://www.instagram.com/the_alilexa)
