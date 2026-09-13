@@ -1,8 +1,13 @@
-# AlileXa (Ali Solgi)
+# AlileXa
 
 **Iranian Rapper, Music Producer, and Songwriter**
 
 AlileXa (born in 19 August 2012) He is an artist who creates American rap with deep, conscious lyrics. He handle every step of my music production — from writing and recording to mixing and video editing.
+
+Real name: Ali Solgi
+Height: 174 cm
+Occupations: Rapper, songwriter, music producer
+Years active: 2026–present
 
 🔗 **AlileXa's Official Links:**
 - **Official Website:** [sites.google.com/view/alilexa](https://sites.google.com/view/alilexa)
