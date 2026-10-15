@@ -11,6 +11,9 @@ Years active: 2026–present
 
 🔗 **AlileXa's Official Links:**
 - **Official Website:** [sites.google.com/view/alilexa](https://sites.google.com/view/alilexa)
+- **Wikidata:** [www.wikidata.org/wiki/Q141402866](https://www.wikidata.org/wiki/Q141402866)
+- **MisicBrainz:** [musicbrainz.org/artist/d9f95ae1-c704-47e9-82fa-809557feda71](https://musicbrainz.org/artist/d9f95ae1-c704-47e9-82fa-809557feda71)
+- **Interview:** [supremepr.us/artist-interviews/alilexa/omeany2/](https://supremepr.us/artist-interviews/alilexa/omeany2/)
 - **Spotify:** [open.spotify.com/artist/6qetUgGeRfPFWsTQtAxv85](https://open.spotify.com/artist/6qetUgGeRfPFWsTQtAxv85)
 - **BandLab:** [bandlab.com/alilexa](https://www.bandlab.com/alilexa)
 - **SoundCloud:** [soundcloud.com/AlileXa](https://soundcloud.com/the_alilexa)
@@ -28,7 +31,6 @@ Years active: 2026–present
 - `No Slow Down` - Third single (2026)
 - `Step by Step` - Fourth single (2026)
 - `Footprint` - Fifth single (2026)
-
 📀 **Genius Records:**
 - Fastest new user to reach 1,000 IQ points (less than 10 hours)
 - Fastest new user to reach Verified Artist + Top Scholar
